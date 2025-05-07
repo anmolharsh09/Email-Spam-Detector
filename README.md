@@ -32,5 +32,8 @@ UI Preview
 
 ![Screenshot 2025-05-08 011047](https://github.com/user-attachments/assets/83bc075d-0af0-4005-ab07-bef5e428f03a)
 
+![Screenshot 2025-05-08 011231](https://github.com/user-attachments/assets/ce766f21-c119-47ea-a809-ee053796170f)
+
+
 
 
